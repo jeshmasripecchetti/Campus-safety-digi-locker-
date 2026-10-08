@@ -1,1 +1,1 @@
-# Campus-safety-digi-locker-
+# Campus-safety-digi-locker
